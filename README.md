@@ -79,7 +79,7 @@ I'm interested in opportunities related to:
 ## 📫 Connect With Me
 
 - GitHub: [@vishaalsv11](https://github.com/vishaalsv11)
-- LinkedIn: Add your LinkedIn profile here
+- LinkedIn: [Vishaal Sv](https://www.linkedin.com/in/vishaal-sv-63968a322/)
 
 ---
 
